@@ -1,4 +1,4 @@
-# 
+# Get the ultimate JetBrains Rider for PC | JetBrains Rider for Windows plugin with automatic Plugin for JetBrains Rider for PC | JetBrains Rider for Windows - project-management
 
 
 
